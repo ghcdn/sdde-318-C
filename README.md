@@ -1,8 +1,7 @@
 ## [[有码高清]SDDE-318 【经常性交】生本番NEWS SHOW](https://cdn.jsdelivr.net/gh/ghcdn/sdde-318-C/res/index.m3u8)
 
 <img src="./img/pic0.jpg" width=100%>
-
-![](./pic1.jpg)
+<img src="./img/pic1.jpg" width=100%>
 
 <p>视频略缩图：</p>
 <div id="thumb-pic">
